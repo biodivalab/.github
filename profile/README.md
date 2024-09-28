@@ -2,7 +2,7 @@
 
 **Coordination:**
 
-Profa. Dra. Luisa Diele-Viegas [<img src="https://img.icons8.com/ios-filled/50/000000/linkedin.png" width="20" height="20">](https://www.linkedin.com/in/dieleviegaslm)
+Profa. Dra. Luisa Diele-Viegas [<img src="https://img.icons8.com/ios-filled/50/000000/linkedin.png" width="20" height="20">](https://www.linkedin.com/in/dieleviegaslm) [<img src="https://img.icons8.com/ios-filled/50/000000/instagram-new.png" width="20" height="20">](https://www.instagram.com/dieleviegaslm/)
 
 **RESEARCH LINES:**
 
